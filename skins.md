@@ -1,4 +1,5 @@
 # all skins i mostly use
 # [Aristia edit](https://kndyyyyy.s-ul.eu/JFMk9dq5)
-![](![image](https://user-images.githubusercontent.com/82230154/114219964-c4496380-9941-11eb-8859-85307cbfa400.png)
 
+![](![image](https://user-images.githubusercontent.com/82230154/114220065-e347f580-9941-11eb-9218-f340dc63abbe.png)
+)

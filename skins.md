@@ -1,4 +1,4 @@
 # all skins i mostly use
-# [NOME](LINK)
+# [Aristia edit](https://kndyyyyy.s-ul.eu/JFMk9dq5)
 ![](PRINT)
 

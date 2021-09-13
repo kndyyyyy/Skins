@@ -1,5 +1,8 @@
 # all skins i mostly use
 
+# [!LoliNyunyu](https://kndyyyyy.s-ul.eu/TaHX35nZ)
+![image](https://user-images.githubusercontent.com/82230154/133096163-db0210a2-bdb3-4dd2-a08e-57dc67c155c7.jpg)
+
 # [Aristia edit](https://kndyyyyy.s-ul.eu/JFMk9dq5)
 ![image](https://user-images.githubusercontent.com/82230154/114220065-e347f580-9941-11eb-9218-f340dc63abbe.png)
 
